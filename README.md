@@ -1,5 +1,5 @@
-## Hi Everyone!👋 , My name is Aliya Nur Noviyanti 🌸
-⭐ I studied at SMK N 2 Magelang.
+## Hallaw👋 , Nama saya Aliya Nur Noviyanti 🌸
+⭐Saya sekolah di SMK NEGRI 2 MAGELANG.
 
 
 
